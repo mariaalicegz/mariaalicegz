@@ -1,6 +1,6 @@
 - 👋 Olá, eu sou a @mariaalicegz
 - 👀 Eu tenho interesses profissionais em, desing web e programção
-- 🌱 Estou cursando informática p/ internet, e aprendendo inglês como língua secundária
+- 🌱 Estou cursando informática p/ internet, e sou bilingue na língua inglesa
 - 💞️ Sou aluna e estou atualmente no primeiro ano do ensino médio da escola técnica ETEC Antônio Furlan
 - 📫 Adoro livros e filmes de ficção científica
 - 😄 Pronomes: ela/dela
